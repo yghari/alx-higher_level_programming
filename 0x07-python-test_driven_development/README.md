@@ -1,2 +1,0 @@
-salam again mbruk laid
-
